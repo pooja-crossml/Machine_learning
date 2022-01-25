@@ -1,15 +1,8 @@
 # Machine_leafgdg
-dfgdfg
-g
 df
-g
-dfg
-d
-g
-dg
 
-dfg
-fd
+
+Yakul chenged this
 g
 df
 g
